@@ -1,4 +1,13 @@
-## Hi there 👋
+⟡ 𝚕𝚘𝚕𝚌𝚊𝚝 ╱ 𝚜𝚊𝚝𝚞𝚛𝚗 ⟡ ‧ ₊ ˚ ⊹  
+\- - -  
+⋄ aroace  
+⋄ nyanbinary  
+⋄ transfemme  
+⋄ neurospicy  
+⋄ out of memory  
+\- - -  
+https://en.pronouns.page/@caturnb  
+<!-- https://blahaj.zone/@lolcatjpg>
 
 <!--
 **lolcatjpg/lolcatjpg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
