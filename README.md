@@ -7,6 +7,10 @@
 ⋄ out of memory  
 \- - -  
 https://en.pronouns.page/@caturnb  
+
+![nonbinary pride](assets/0079-nonbinary.gif) ![this user is trains](assets/0023-trans-pride.gif)
+
+
 <!-- https://blahaj.zone/@lolcatjpg>
 
 <!--
