@@ -1,10 +1,7 @@
 ⟡ 𝚕𝚘𝚕𝚌𝚊𝚝 ╱ 𝚜𝚊𝚝𝚞𝚛𝚗 ⟡ ‧ ₊ ˚ ⊹  
 \- - -  
-⋄ aroace  
-⋄ nyanbinary  
-⋄ transfemme  
-⋄ neurospicy  
-⋄ out of memory  
+neurospicy transfemmeby with 2.5 bytes of memory
+aroace and clumsy as shit
 \- - -   
 
 ![nonbinary pride](assets/0079-nonbinary.gif) ![this user is trains](assets/0023-trans-pride.gif)
