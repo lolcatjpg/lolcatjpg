@@ -4,7 +4,7 @@
 
 computer enthousiast and studier of its science\
 photography enjoyer\
-neurospicy transfemmeby\
+aroace transfemmeby\
 haver of the tisms™
 
 _<sup title="i have shit processing speed :3">powered by Intel Celeron</sup>_
