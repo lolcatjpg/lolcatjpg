@@ -9,7 +9,7 @@ haver of the tisms™
 
 _<sup title="i have shit processing speed :3">powered by Intel Celeron</sup>_
 
-![nonbinary pride](assets/0079-nonbinary.gif) ![this user is trains](assets/0023-trans-pride.gif)
+![nonbinary pride](assets/0079-nonbinary.gif) ![this user is trains](assets/0023-trans-pride.gif) ![aroace pride](assets/awnowimsad.tumblr.com-aroace.webp) ![autism with tbh creature](assets/blinkie-hoard-0114-tbh.gif)
 
 <!-- https://blahaj.zone/@lolcatjpg>
 
