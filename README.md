@@ -1,17 +1,13 @@
 ⟡ 𝚕𝚘𝚕𝚌𝚊𝚝.jpg ⟡ ‧ ₊ ˚ ⊹  
 
----
+![rainbow cats divider](assets/rainbowcats.png)
 
 computer enthousiast and studier of its science\
 photography enjoyer\
 neurospicy transfemmeby\
 haver of the tisms™
 
----
-
-powered by Intel Celeron
-
----
+_<sup title="i have shit processing speed :3">powered by Intel Celeron</sup>_
 
 ![nonbinary pride](assets/0079-nonbinary.gif) ![this user is trains](assets/0023-trans-pride.gif)
 
