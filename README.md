@@ -1,15 +1,23 @@
-⟡ 𝚕𝚘𝚕𝚌𝚊𝚝 ╱ 𝚜𝚊𝚝𝚞𝚛𝚗 ⟡ ‧ ₊ ˚ ⊹  
-\- - -  
-neurospicy transfemmeby with 2.5 bytes of memory \
-aroace and clumsy as shit \
-\- - -   
+⟡ 𝚕𝚘𝚕𝚌𝚊𝚝.jpg ⟡ ‧ ₊ ˚ ⊹  
+
+---
+
+computer enthousiast and studier of its science\
+photography enjoyer\
+neurospicy transfemmeby\
+haver of the tisms™
+
+---
+
+powered by Intel Celeron
+
+---
 
 ![nonbinary pride](assets/0079-nonbinary.gif) ![this user is trains](assets/0023-trans-pride.gif)
 
-
 <!-- https://blahaj.zone/@lolcatjpg>
 
-<!--
+
 **lolcatjpg/lolcatjpg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
